@@ -2,7 +2,7 @@
 - 👀 I’m interested in alot of things
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on any simple project am a newbie
-- 📫 How to reach me? go to the mpesa app and type
+- 📫 How to reach me? go to the mpesa app and type 0759..
 - 😄 Pronouns: HE
 - ⚡ Fun fact: Am good a sword fighting
 
